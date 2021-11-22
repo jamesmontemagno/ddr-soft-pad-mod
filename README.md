@@ -31,11 +31,11 @@ My favorite soft pad is the DPR2 by Naki (www.nakiusa.com). I buy them at GameSt
 
 After getting the pad, you will need the following supplies, all of which are available at Home Depot:
 
-* A board 35 inches wide by 39 inches tall * ($24).
-* A roll of duct tape of your favorite color ($5).
-* A roll of double sided carpet tape ($5).
-* A roll of clear packaging tape ($5).
-* 10 feet of hardwood floor covering ** ($15).
+* A [board 35 inches wide by 39 inches tall](https://www.homedepot.com/b/Lumber-Composites-Plywood/N-5yc1vZbqm7) * ($24).
+* A roll of [duct tape of your favorite color](https://amzn.to/3xfNrpt) ($5).
+* A roll of [double sided carpet tape](https://amzn.to/3xfAxrM) ($5).
+* A roll of [clear packaging tape](https://amzn.to/3oTY9hN) ($5).
+* 10 feet of [hardwood floor runner](https://www.lowes.com/pd/Tenex-27-in-W-Cut-to-Length-Clear-Extruded-Vinyl-Utility-Runner-By-the-Foot/1000258915) ** ($15).
  
 Things that hopefully you already own or can borrow:
 
