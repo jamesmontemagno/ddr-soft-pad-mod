@@ -75,9 +75,11 @@ The vinyl is probably rolled up and wants to stay that way, so roll it up backwa
 Set the two strips of vinyl horizontally across the board so that they overlap a bit in the middle. Personally, I don’t like the feel of the overlap in the center of the board, but if you don’t mind it, it makes things a lot easier. Just tape them together with clear packaging tape, making sure that you use one long piece across the top so that there are no corners to peel up while you dance on it. If you do mind the overlap, you’re going to have to lay the two edges together and tape a bit more carefully. I recommend that you tape the bottom first, using short strips to tape vertically to hold it together, and then long pieces horizontally to finish the job. The top only needs a single long piece, because the bottom tape should hold it together well enough.
 
 The back taping:   
+
 ![](images/image004.jpg)
 
 The back taping:
+
 ![](images/image005.jpg)
                     
 (those are Photoshopped lines, it’s not actually the color of my tape)
@@ -116,9 +118,11 @@ I highly suggest not putting carpet tape under the arrow itself, because dancing
 Once you tape the bottom edge down, do the center (I forgot to take a picture, but it’s just four strips in the center, avoiding the very middle where you stand a lot), and then move to the top. Be sure to pull the pad and kind of “roll” it down onto the tape, instead of just putting it down flat, which will result in wrinkles.
 
 The bottom arrow:   
+
 ![](images/image010.jpg)
 
 The top arrow:
+
 ![](images/image011.jpg)
                                 
 
